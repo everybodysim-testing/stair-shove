@@ -7,3 +7,5 @@ yep kinda boring huh
 schools don't let you have any fun nowadays
 
 just tests, essays, and hour long suicide prevention videos
+
+stupid securely bro always blocking things
